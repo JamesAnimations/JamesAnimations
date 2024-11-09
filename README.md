@@ -1,0 +1,6 @@
+- Hello! I'm James! Some people call me
+- Jimmy for some reason...
+- He/Him
+- Animator
+- Artist (2D & 3D)
+- Baldi, Thomas and BFDI fan
